@@ -56,3 +56,6 @@ Atuar como Analista de Dados em uma empresa orientada por decisões estratégica
 * Jogar bola
 * Sair com os amigos
 ---
+### Projetos 📋✍️
+* https://drive.google.com/file/d/1-OED2Z3Rzw-QeJsQ2-JOA2thVteAsLpW/view?usp=drive_link
+* https://drive.google.com/file/d/14ypbKGHkeIAtJ32cs-d3x4TXjaKJnm6w/view?usp=drive_link
